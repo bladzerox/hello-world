@@ -1,3 +1,7 @@
 # hello-world
 check me out
-im an electrician, dancer, and programmer!
+-> the one and only
+# find me on the internet
+! looking for work
+$ VENMO @bladzerox
+working class, CIVILIAN
