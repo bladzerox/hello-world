@@ -4,4 +4,4 @@ check me out
 # find me on the internet
 ! looking for work
 $ VENMO @bladzerox
-working class, CIVILIAN
+WORKING CLASS, CIVILIAN
