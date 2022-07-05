@@ -1,3 +1,3 @@
 # send me money
-@ VENMO @bladzerox
-WORKING CLASS CIVILIAN
+SUPPORT THE CAUSE
+VENMO @bladzerox
